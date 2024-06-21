@@ -9,7 +9,7 @@ birthday cake for him
 
 pindtin mo lang nasa baba hahaha
 
-[HEEEERE](https://molinsga.github.io/cake-chan/brnnnnddyyy.html)
+[HEEEERE](https://molinsga.github.io/cake-chan/BRUH.html)
 
 ## Files
 
